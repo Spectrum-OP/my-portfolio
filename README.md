@@ -1,1 +1,2 @@
-![Portofolio](https://github.com/Spectrum-OP/Portfolio/assets/89567308/f7d7eff0-a634-4e44-a038-d01249fe7221)
+
+![127 0 0 1_5500_index html](https://github.com/user-attachments/assets/9434b622-514d-44e6-bfb9-e6b26c2ada83)
